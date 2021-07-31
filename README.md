@@ -3,9 +3,7 @@
 ==
 :heart: :point_right: 【防屏蔽800】 ：[https://jiuse800.com](https://jiuse800.com/?r=org)
 ------
-:heart: :point_right: 【移动用户105】 ：[https://jiuse105.xyz](https://jiuse105.xyz/?r=org)
-------
-:heart: :point_right: 【移动用户106】 ：[https://jiuse106.xyz](https://jiuse106.xyz/?r=org)
+:heart: :point_right: 【移动用户107】 ：[https://jiuse105.xyz](https://jiuse107.xyz/?r=org)
 ------
 :heart: :point_right: 【最新911】 ：[https://jiuse911.com](https://jiuse911.com/?r=org)
 ------
