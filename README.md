@@ -5,7 +5,7 @@
 ------
 :heart: :point_right: 【移动用户10086】 ：[https://jiuse10086.com](https://jiuse10086.com/?r=org)
 ------
-:heart: :point_right: 【移动用户cc】 ：[https://sesese.cc](https://sesese.cc/?r=org)
+:heart: :point_right: 【移动用户cc】 ：[http://sesese.cc](http://sesese.cc/?r=org)
 ------
 :heart: :point_right: 【最新911】 ：[https://jiuse911.com](https://jiuse911.com/?r=org)
 ------
