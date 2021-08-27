@@ -3,7 +3,7 @@
 ==
 :heart: :point_right: 【防屏蔽800】 ：[https://jiuse800.com](https://jiuse800.com/?r=org)
 ------
-:heart: :point_right: 【移动用户10086】 ：[https://jiuse10086.com](https://jiuse10086.com/?r=org)
+:heart: :point_right: 【移动用户86】 ：[https://jiuse86.com](https://jiuse86.com/?r=org)
 ------
 :heart: :point_right: 【移动用户cc】 ：[http://sesese.cc](http://sesese.cc/?r=org)
 ------

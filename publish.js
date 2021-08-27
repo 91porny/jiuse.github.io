@@ -3,7 +3,7 @@ var emails = [
 ];
 var newestUrls = [
     'https://jiuse911.com',
-	'https://jiuse10086.com',
+	'https://jiuse86.com',
 	'http://sesese.cc'
 ];
 var otherUrls = [
